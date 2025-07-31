@@ -27,5 +27,5 @@ Atualmente estudando **banco de dados** e fortalecendo minhas habilidades em **a
 ---
 
 ## 📫 Como me encontrar
-- 🌐 [yasmin-gomes-ti](www.linkedin.com/in/yasmin-gomes-ti)  
+- 🌐 www.linkedin.com/in/yasmin-gomes-ti 
 - ✉️ **yasmingomes956@gmail.com**
